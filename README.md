@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, my name is Michael. I just finished plublishing a book titled "Amen" by Michael Porras avilible on Amazon. As of now, I'm sharpening my Spanish, and I'm looking to collaborate with people who truly seek God. I'm looking for like minded deciples who know the Word of God. You can reach me on X @ChristianEnligh he, him. Fun fact, Jesus can speak perfect English!  👋
 
 <!--
 **VatoLoco19/VatoLoco19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
