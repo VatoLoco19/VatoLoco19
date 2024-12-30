@@ -25,7 +25,7 @@ It's hear, by reading the Bible for ourselves, that we understand that it's the 
 
 And Jesus, when he was baptized, he came straight out of the water. And lo, the heavens were opened unto him, and John saw the Spirit of God descending like a dove, and lighting upon Jesus. And lo, a voice came from heaven, saying, This is my beloved Son, in whom I am well pleased. Mattheww 3:16-17.  
 
-So, when Jesus told the people, "Before Abraham was, I AM." It was God, the Holy Spirit was talking, not Jesus. 
+After Jesus was baptized, in a different part of the Bible, when Jesus was speaking to the Jewish people, Jesus told them, "Before Abraham was, I AM." Here, it was God, the Holy Spirit that was talking, not Jesus. The Spirit was trying to tell them, I'm here, but all the people saw was Jesus. They didn't understand that the Holy Spirit was speaking through Jesus. 
 
 My friend, I strongly invite you into the kingdom of God by accepting this understanding. If you can see and know that what I'm saying is the truth, then look around because God is near you. Pray to the Holy Spirit in Jesus name. Don't say, "Amen" at the end of your prayer. End your prayer with English words, like 'in Jesus name.' or 'so be it.' I explain why not to say 'Amen' in my book titled, "Amen" by Michael Porras it's availible on Amazon Kindle and Amazon.com. 
 
