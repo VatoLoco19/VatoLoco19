@@ -23,7 +23,7 @@ If you know the Bible, then you would agree with this creed, because the Holy Sp
 
 It's hear, by reading the Bible for ourselves, that we understand that it's the Holy Spirit that spoke through Jesus and healed the people. God entered Jesus, after Jesus was baptized, as it is written: 
 
-And Jesus when he was baptized, came straight out of the water. And lo, the heavens were opened unto him, and John saw the Spirit of God descending like a dove, and lighting upon Jesus. And lo, a voice came from heaven, saying, This is my beloved Son, in whom I am well pleased. Mattheww 3:16-17.  
+And Jesus, when he was baptized, he came straight out of the water. And lo, the heavens were opened unto him, and John saw the Spirit of God descending like a dove, and lighting upon Jesus. And lo, a voice came from heaven, saying, This is my beloved Son, in whom I am well pleased. Mattheww 3:16-17.  
 
 So, when Jesus told the people, "Before Abraham was, I AM." It was God, the Holy Spirit was talking, not Jesus. 
 
