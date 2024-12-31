@@ -6,11 +6,7 @@ Welcome to Christian Enlightenment Church LLC.,
 
 My friend, I have read the entire Bible over and over throughout my life. And we are being misled and lied to in so many ways. For example, the Church says that we must forgive, to be forgiven, and that’s simply not true. What did Jesus say? Regarding Judgement Jesus said, “After he breathed on them, he said, “Receive the Holy Spirit. If you forgive anyone’s sins, their sins are forgiven; if you do not forgive them, they are not forgiven.” John 20: 22-24. And not everyone is forgiven. The Church has also taken the Sabbath away and has committed many other offences to keep us away from God, but we can change it.
 
-My name is Michael, and I invite you into the Kingdom of God!  It’s a New Beginning! 
-
-
-
-The Creed:
+My name is Michael, and I invite you into the Kingdom of God! It’s a New Beginning and this is our Creed:
 
 
 The Faith of Christ
